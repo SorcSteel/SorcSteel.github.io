@@ -6,7 +6,7 @@ Graduated with an Associates in Applied Science in Software Development
 
 #### Contact
 
-Email: loganpowvang[at]gmail.com
+Email: loganpowvang@gmail.com
 
 #### Education
 A.A.S, Computer Science and Technology, Fox Valley Technical College, 2022—2025.
